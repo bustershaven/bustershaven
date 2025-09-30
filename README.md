@@ -1,3 +1,1 @@
-- 👋 Hi, I’m @bustershaven
-- 👀 I’m interested in Game Development
-
+I be gooning my shit to elliot ALL DAY
